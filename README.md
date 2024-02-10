@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Hessa Alshaya
-- 🌱 I’m currently A Student
+- 🌱 I’m currently a Student
 - ⚡ Fun fact: 119 :)
 
 <!---
